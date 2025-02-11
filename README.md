@@ -78,4 +78,4 @@
 
 Email: tim-pro7@mail.ru
 
-Telegram: [tim_analyst](https://www.t.me/tim_analyst)
+Telegram: [ntimoxa_tut](https://www.t.me/ntimoxa_tut)
